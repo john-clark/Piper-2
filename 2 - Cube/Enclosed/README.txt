@@ -1,0 +1,2 @@
+Piper 2 version 2 Enclosed CoreXY design based on EMT conduit pipes US version by Piper3D on Thingiverse: https://www.thingiverse.com/thing:3294998
+Piper 2 version 2 Enclosed CoreXY design based on 20mm OD EMT conduit pipes UK by Piper3D on Thingiverse: https://www.thingiverse.com/thing:3303290

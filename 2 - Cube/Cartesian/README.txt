@@ -1,0 +1,2 @@
+Piper 2 3D Printer (CoreXY design based on EMT conduit pipes) US version by Piper3D on Thingiverse: https://www.thingiverse.com/thing:3022836
+Piper 2 3D Printer (CoreXY design based on EMT conduit pipes) 20mm OD Conduit version by Piper3D on Thingiverse: https://www.thingiverse.com/thing:3036472

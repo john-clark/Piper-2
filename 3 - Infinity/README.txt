@@ -1,0 +1,2 @@
+Piper Infinity (Piper 4) - Infinite Z 3D Printer (Metric version or 19mm pipe)  by Piper3D on Thingiverse: https://www.thingiverse.com/thing:3817276
+Piper Infinity (Piper 4) - Infinite Z 3D Printer (US version or 1/2 US EMT conduit) by Piper3D on Thingiverse: https://www.thingiverse.com/thing:3711685
